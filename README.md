@@ -18,3 +18,9 @@ To get started with the project, follow these steps:
    ```
 
 ## MARSHALL 😇
+
+![Image](https://github.com/user-attachments/assets/907274b6-a461-4b19-b5f3-ef0c62d27a38)
+
+![Image](https://github.com/user-attachments/assets/fff153d4-9661-4a5c-b69e-0063028984b3)
+
+![Image](https://github.com/user-attachments/assets/07918ad4-26f5-4729-a26b-063936e2c7a8)
